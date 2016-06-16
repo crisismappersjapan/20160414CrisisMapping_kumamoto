@@ -1,0 +1,3 @@
+# 20160414CrisisMapping_kumamoto
+
+クライシスマッピング活動情報
